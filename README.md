@@ -1,5 +1,5 @@
 # hello-world
-my first respository
+my first spository
 afternoon tobacco
 vgvjvgvhjvhj
 
